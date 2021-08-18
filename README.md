@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yokofunabashi
-- 👀 I’m interested in ...Movie CAT
+- 👀 I’m interested in ...Movie, CAT
 - 🌱 I’m currently learning ...I'm going to stady English
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Anytime on chat & Mail!
